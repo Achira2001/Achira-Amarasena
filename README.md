@@ -13,6 +13,8 @@
 
 - 🔭 I’m currently following BEng (Hons) Software Engineering Degree at **University of Westminster affiliated with Informatic Institute of Technology**
 
+- 🔭 I’m currently working at **SLT Mobitel**
+
 - 📫 How to reach me **achirashashik1@gmail.com**
 
 - ⚡ Fun fact **I am so sensitive**
